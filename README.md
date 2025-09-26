@@ -1,2 +1,4 @@
 # Faeiryfoid-
 Xxxphemcel
+Wilhoit's Law - Conservatism consists of exactly one proposition …There must be in-groups whom the law protects but does not bind, alongside out-groups whom the law binds but does not protect.
+
